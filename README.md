@@ -9,6 +9,6 @@
     
  𝜗ৎ ⊹ ࣪ i don't roleplay, don't ask/try to drag me into any 
     
- 𝜗ৎ ⊹ ࣪ not a forsaken fan or player btw!! i just like chance and my partner is a two time fictionkin. idrc if yall interact tho  
+ 𝜗ৎ ⊹ ࣪ friend requests sent without any prior conversation will be ignored the majority of the time
  
 𝜗ৎ ⊹ ࣪ i'm frequently slow to reply to whispers. if i dont respond to you in time i apologize </3
