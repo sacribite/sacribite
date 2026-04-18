@@ -1,4 +1,4 @@
-# <img width="2403" height="1300" alt="Untitled1086_20260316164026" src="https://github.com/user-attachments/assets/c91b1fa6-5fbc-4ba6-a995-083cfa990fac" />
+# <img width="2403" height="1200" alt="Untitled1086_20260316164026" src="https://github.com/user-attachments/assets/c91b1fa6-5fbc-4ba6-a995-083cfa990fac" />
 ### extra info  
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦  
    
