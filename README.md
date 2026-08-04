@@ -28,6 +28,6 @@
   </p>
 </details>
 <p align="center"> 　  </p>
-<p align="center">❝ a dollhouse in my mind , </p>  
+<p align="center">❝ a <ins>dollhouse</ins> in my mind , </p>  
 
-<p align="center">❝ we play pretend to pass the time ! ❞ </p>
+<p align="center">❝ we play pretend to <ins>pass the time</ins> ! ❞ </p>
