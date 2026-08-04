@@ -16,7 +16,7 @@
     
    ⟡　　no dni otherwise, i block + hide freely  
 
-   ⟡　　007n7 cosplays　/ 　7NNoli ships please interact with care  
+   ⟡　　007n7 cosplays　/ 　7NNoli ships please iwc  
    (systems alters or fictionkins are okay)  
    <sub>╰ ➣ might <i>occasionally</i> temp hide over this <ins>unless we're friends,</ins></sub>  
   <sub> please do not take it personally. </sub>  
