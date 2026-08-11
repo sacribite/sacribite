@@ -4,7 +4,7 @@
 <p align="center"> <img width="300" height="300" alt="Untitled905_20260803001417" src="https://github.com/user-attachments/assets/aaea589b-3f47-4e2d-a475-aa4f66020544" /> </p>
 <p align="center">  <ins><i>ash</i></ins>　ノ　<b><ins><i>uzi</i></ins></b>　ノ　<ins><i>kris</i></ins>
 <p align="center">   </p>
-<p align="center"> they　╱　them　　୭　　<ins>18</ins> </p>  
+<p align="center"> they　╱　them　　୭　　<ins>19</ins> </p>  
 
 <p align="center"> audhd　　⛧ 　　<ins>fictkin</ins>　　♰　　<i>selfshipper</i> </p>
 
