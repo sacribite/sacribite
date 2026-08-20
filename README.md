@@ -31,3 +31,39 @@
 <p align="center">❝ a <ins>dollhouse</ins> in my mind , </p>  
 
 <p align="center">❝ we play pretend to <ins>pass the time</ins> ! ❞ </p>
+<details align="center">
+ <summary>f/o list</summary>
+  <br>
+  <p align="center">
+   ⟡　　noli　—　college au / forsaken
+    
+   ⟡　　chance　—　forsaken  
+
+   ⟡　　azure / aspen　—　forsaken
+
+   ⟡　　glisten　—　dandy's world  
+
+   ⟡　　blot　—　dandy's world  
+
+   ⟡　　griefer　—　blocktales  
+
+   ⟡　　pest　—　regretevator 
+
+   ⟡　　intern　—　animal hospital
+
+   ⟡　　pursuer　—　die of death   
+
+   ⟡　　 N / niko　—　murder drones  
+
+   ⟡　　lohen　—　genshin impact  
+
+   ⟡　　wanderer　—　genshin impact  
+
+   ⟡　　kinich　—　genshin impact  
+
+   ⟡　　mitya　—　genshin impact  
+
+  <sub> plus a bunch of others i dont feel like listing </sub> 
+ </p>
+</details>
+<p align="center"> 　  </p>
